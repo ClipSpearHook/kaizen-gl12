@@ -1,4 +1,4 @@
-
+new Script for kaizen is the best kaizen Script, featuring auto-collect and teleport. Safe and powerful for all your needs.
 
 
 
